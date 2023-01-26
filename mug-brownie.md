@@ -11,11 +11,9 @@ What you need
 * A pinch of salt
 * 2 tbsp olive oil
 * 3 tbsp water
-<<<<<<< HEAD
 * 1 tbsp chocalte topping
-=======
 * 1 tbsp milk
->>>>>>> d37519f7b0aab3f4277225094649defdef3e60e1
+
 
 Steps
 =====
