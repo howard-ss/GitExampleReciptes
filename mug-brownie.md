@@ -13,6 +13,9 @@ What you need
 * A pinch of salt
 * 2 tbsp olive oil
 * 3 tbsp water
+* 1 tbsp chocolate topping
+* 1 tbsp milk
+
 
 Steps
 =====
@@ -20,4 +23,6 @@ Steps
 1. Add all the dry ingredients to a mug.
 2. Add the oil and water.
 3. Mix until everything is mixed together well.
+4. spread the chocalate topping on the top.
 4. Microwave for 1 minute 40 seconds.
+5. Add milk.
