@@ -11,7 +11,7 @@ What you need
 * A pinch of salt
 * 2 tbsp olive oil
 * 3 tbsp water
-* 1 tbsp chocalate topping
+* 1 tbsp chocolate topping
 * 1 tbsp milk
 
 
