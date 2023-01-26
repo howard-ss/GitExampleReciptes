@@ -2,6 +2,8 @@ I love this recipe, because it's so simple to make.
 
 Often times, I will skip the microwave stage, and just eat the brownie mix. There no egg in it, so it's not even a salmonella risk!
 
+I stumbled upon the mug-brownie recipe while scrolling through social media late at night. They couldn't resist trying it and was blown away by the gooey, chocolatey goodness. 
+
 What you need
 =============
 
